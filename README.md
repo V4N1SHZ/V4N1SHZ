@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @V4N1SHZ
+- Fuck roblox jk
+- 🌱 I’m currently learning how to read
